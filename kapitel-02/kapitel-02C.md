@@ -1,0 +1,1 @@
+Chapter 2C - Der Weg des Lichts story about the birds choosing the eastern path of light, visiting the Valley of Morning Light, the Plain of Midday Radiance, and the Hill of Evening Glow, learning about honesty, accepting truth, and gratitude. 1721 words in Swiss German.
